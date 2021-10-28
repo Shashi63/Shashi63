@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Shashi63
 - 👀 I’m interested in exploring new places 
 - 🌱 I’m currently learning how to cook different kinds of food 
-- 💞️ I’m like to drink mocha coffee early in the morning
+- 💞️ I like to drink mocha coffee early in the morning
 - 📫 reach me on @shashi_63
 
 <!---
